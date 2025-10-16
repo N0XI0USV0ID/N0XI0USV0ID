@@ -22,3 +22,4 @@
 - object shows (mainly bfdi)
 - undertale / deltarune
 - kaaatieverse
+- (also i will note a lot of the interests on my strawpage are things that ive showed interest in at some point. a lot of them i dont really like anymore !)
