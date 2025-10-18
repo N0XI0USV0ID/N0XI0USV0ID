@@ -1,7 +1,6 @@
 # I DO HAVE POWER... BUT NOT ENOUGH.
 
-![a blinkie with the character one from battle for dream island, the power of two. the text says "let's get to know each other
- with an exclamation mark and an image of one smiling on the right](https://i.postimg.cc/ZKXHndMD/image-2025-10-18-084410470.png)
+![](https://i.postimg.cc/WzyRYwwy/tumblr-d78e27696a6d7eff4685aee981e4b2d4-a24cd9b0-100.webp) ![](https://i.postimg.cc/rpNB2k9t/tumblr-89d918a302070b9bde554ec744b05724-bb309028-100.webp) ![](https://i.postimg.cc/SKkPrPpx/tumblr-4e26c2c642f1599cefa4e1fc1a4695fb-ec231d88-100.webp)
 
 ## basic info !!
 
