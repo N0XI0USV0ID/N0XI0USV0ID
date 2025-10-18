@@ -1,12 +1,13 @@
-# MY GREATEST INVENTION !!
+# I DO HAVE POWER... BUT NOT ENOUGH.
 
-![](https://i.postimg.cc/PqDXWkk4/tumblr-695a9b1114d402cf31f37526ab3500e3-5ad319ab-400.webp)
+![a blinkie with the character one from battle for dream island, the power of two. the text says "let's get to know each other
+ with an exclamation mark and an image of one smiling on the right](https://i.postimg.cc/ZKXHndMD/image-2025-10-18-084410470.png)
 
 ## basic info !!
 
-- keath/coz , he/neos , transmasc gay(nwlnw) genderfluid
+- keath/katie/coz , ask/neos , transmasc gay(nwlnw) genderfluid
 - system , taken collectively (9.2.25) and individually (6.25.25)
-- multishipper , (nonsharing) yumeshipper
+- multishipper , (nonsharing) yumeshipper (might make a yume list eventually!)
 - synpath / fictionkin , therian , otherkin , multisourced introject
 - polythestic
 
